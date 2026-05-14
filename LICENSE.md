@@ -1,4 +1,4 @@
-#  
+#  Experience brookhaven rp like never before with automatic Scripts for brookhaven rp, the #1 Script. Includes unlimited stamina and auto-heal for
 
 
 
